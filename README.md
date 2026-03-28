@@ -1,4 +1,4 @@
-# Hi there 👋 I'm Dhyey
+# Hi there, I'm Dhyey 👋
 
 🚀 Engineering @ Amazon  
 🎓 BTech in Information and Communication Technology  
